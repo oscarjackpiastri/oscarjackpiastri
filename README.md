@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=oscarjackpiastri&color=orange&label=timtams)
 
 
-[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=500&color=CA480E&width=500&lines=no+friends,+only+enemies.)](https://git.io/typing-svg)
+[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=500&color=CA480E&width=500&lines=oh+mate,+just+dont+talk+to+me+right+now.)](https://git.io/typing-svg)
 
 <img width="250" height="200" src="https://github.com/user-attachments/assets/83d076c4-3abf-4d2a-8272-f00b819c8f31">
 
