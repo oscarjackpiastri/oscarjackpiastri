@@ -11,7 +11,7 @@ anti-rpf = block me<br>
 op81 self insert (not factkin)
 
 disclosure: i stick CLOSELY to rpf etiquette, if you shove it around<br>
-or force it upon others please block me lmao. (and if you take it too seriously, too!)
+or treat it as reality dni lmao. (and force it upon others, too!)
 
 i have a life and dont have time for petty internet discourse :)<br>
 ask for my discord
