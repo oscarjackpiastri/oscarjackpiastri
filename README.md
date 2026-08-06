@@ -1,23 +1,8 @@
-<img src= "https://i.pinimg.com/originals/e8/2f/2a/e82f2a57dc902a6a53e91d952fa9facd.gif">
+<img src="https://www.pinterest.com/ideas/oscar-piastri-gif/958195437508/"/>
 
 <div align="center">
-  <p>vincenza or oscar</p>
-  <p>college student, law</p>
-  <p>anti-rpf dni, block. yes i self-insert as oscar piastri, no its not factkin</p>
+  <p>vincenza or oscar. he/him, im a law student</p>
+  <p>anti-rpf dni, block. yes i self-insert as oscar piastri, no its not factkin LMAO</p>
   <p>i have a life so i dont have time for internet discourse. ask for discord</p>
   <p>i dont mind cuddles if we are from the same source or interest :)</p>
 </div>
-<!--
-**oscarjackpiastri/oscarjackpiastri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
