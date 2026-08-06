@@ -13,11 +13,10 @@ asian, jurisprudence student<br>
 anti-rpf = block me<br>
 op81 self insert (not factkin)
 
-disclosure: i stick CLOSELY to rpf etiquette, if you shove it around<br>
-or treat it as reality dni lmao. (and force it upon others, too!)
+disclosure: i stick CLOSELY to rpf etiquette, if you shove it around or treat it as reality dni lmao. (and force it upon others, too!)
 
 i have a life and dont have time for petty internet discourse :)<br>
-ask for my discord
+i don't usually follow back. ask for my discord if you want to stay in contact. 
 </p>
 
 
