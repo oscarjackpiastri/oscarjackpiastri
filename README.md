@@ -1,5 +1,12 @@
-## Hi there 👋
+<img src= "https://i.pinimg.com/originals/e8/2f/2a/e82f2a57dc902a6a53e91d952fa9facd.gif">
 
+<div align="center">
+  <p>vincenza or oscar</p>
+  <p>college student, law</p>
+  <p>anti-rpf dni, block. yes i self-insert as oscar piastri, no its not factkin</p>
+  <p>i have a life so i dont have time for internet discourse. ask for discord</p>
+  <p>i dont mind cuddles if we are from the same source or interest :)</p>
+</div>
 <!--
 **oscarjackpiastri/oscarjackpiastri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
