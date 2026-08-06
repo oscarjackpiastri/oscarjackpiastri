@@ -6,7 +6,7 @@
 
 <p>
 vincenza or oscar<br>
-law student<br>
+jurisprudence student<br>
 anti-rpf = block me<br>
 op81 self insert (not factkin)
 </p>
