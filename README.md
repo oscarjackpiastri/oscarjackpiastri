@@ -1,4 +1,3 @@
-<img src="https://www.pinterest.com/ideas/oscar-piastri-gif/958195437508/"/>
 
 <div align="center">
   <p>vincenza or oscar. he/him, im a law student</p>
