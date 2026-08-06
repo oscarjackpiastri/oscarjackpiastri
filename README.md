@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=oscarjackpiastri&color=orange&label=timtams)
+![](https://komarev.com/ghpvc/?username=oscarjackpiastri&color=orange&label=timtams+i+get+with+each+profile+view)
 
 
 [![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=500&color=CA480E&width=500&lines=oh+mate,+just+dont+talk+to+me+right+now.)](https://git.io/typing-svg)
