@@ -19,7 +19,7 @@ rpf etiquette applies, anti-rpf dni
   <summary>click 4 ext.</summary>
   <br>
   im into formula 1 right now, supporting mclaren.<br>
-  interests: formula 1, military, aviation, music, reading/writing, harry potter, politics
+  interests: formula 1, military, aviation, music, reading/writing, harry potter, politics<br>
   i have a life and dont have time for petty internet discourse :). very busy with college.<br>
   im aroace but flirty/friendly (this won't apply to minors ofc), tell me beforehand if you're uncomfortable.<br>
   ask for my discord if you want to stay in contact. 
