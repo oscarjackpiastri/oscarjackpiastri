@@ -1,5 +1,8 @@
-![](https://komarev.com/ghpvc/?username=oscarjackpiastri&color=orange&label=‎ꫂ᭪݁)
+![](https://komarev.com/ghpvc/?username=oscarjackpiastri&color=orange&label=‎ꫂ᭪݁)<br>
+<sup><sub>c+h if same source<br>
+dncover dncopy</sub></sup>
 <div align="center">
+
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&duration=3000&pause=1000&color=F78734&center=true&width=1000&lines=my+moon%2C;the+moon+and+my+man...;take+it+slow%2C;take+it+easy+on+me." alt="Typing SVG" /></a>
 
