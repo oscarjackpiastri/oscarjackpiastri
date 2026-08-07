@@ -33,8 +33,9 @@ rpf etiquette applies, anti-rpf dni
 <img width="120" height="69" alt="tumblr_56e47ea3a28a6262d23bec8daab3dedd_dbe20517_400" src="https://github.com/user-attachments/assets/96ab87c6-81eb-4d79-8066-77cc156a70a1" />
 
 ─────────────────────
-
-my stamps! :)<br>
+<details>
+  <summary>click 4 my stamps! :)</summary>
+  <br>
 <img width="99" height="56" alt="tumblr_f72eb7c0a92e207a55e71db58443102b_510f5d85_100" src="https://github.com/user-attachments/assets/347ec02c-7fbd-4daa-a144-b2f75d90015f" />
 <img width="99" height="56" alt="tumblr_7f0a40784817c7a2544d63d33b75ba50_6368fa9f_100" src="https://github.com/user-attachments/assets/6dede063-7649-4d5c-96a0-c565ab35bf5c" />
 <img width="99" height="56" alt="tumblr_9bb7e585008f22a92ed985dd1a9d10f3_28d0e086_100" src="https://github.com/user-attachments/assets/1b390867-2f70-4700-8de1-cf5710b768f4" />
@@ -58,6 +59,7 @@ my stamps! :)<br>
 <img width="99" height="56" alt="tumblr_b3dfbe0c3a670ddd550b8832bd0e0f78_70bdd50b_100" src="https://github.com/user-attachments/assets/b64e74c1-41b7-4ed5-b6c0-e06aee0f73ad" />
 <img width="99" height="56" alt="tumblr_bda249801fce36d4b07e69132fec993e_7cc4cd86_100" src="https://github.com/user-attachments/assets/a4fdf0fe-2e09-4888-b418-331bc8684b24" />
 <img width="99" height="57" alt="tumblr_8dc645dfb7aeed814de521612be8cfff_f193e705_100" src="https://github.com/user-attachments/assets/5eaba56e-bc6a-4b69-86fd-667645b62d67" />
-
+</p>
+</details>
 
 </div>
