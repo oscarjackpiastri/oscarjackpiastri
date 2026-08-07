@@ -13,7 +13,7 @@ op81 self insert (not factkin)
 <details>
   <summary>click 4 ext.</summary>
   <br>
-  im into formula 1 right now, supporting mclaren. my hobbies are music, drawing, drumming, singing and military. speaking of, i had just done two days in the military (cool experience!) i'm a college student studying and practicing law. if you recognize me, no, you do not. 
+  im into formula 1 right now, supporting mclaren. my hobbies are music, singing and aviation. speaking of, i had just done two days in the military (cool experience!) i'm a college student studying and practicing law. if you recognize me, no, you do not.
 </details>
 
 i have a life and dont have time for petty internet discourse :). busy with college<br>
