@@ -1,6 +1,6 @@
+![](https://komarev.com/ghpvc/?username=oscarjackpiastri&color=orange&label=‎ꫂ᭪݁)
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=oscarjackpiastri&color=orange&label=timtams+i+get+with+each+profile+view)
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&duration=3000&pause=1000&color=F78734&center=true&width=1000&lines=my+moon%2C;the+moon+and+my+man...;take+it+slow%2C;take+it+easy+on+me." alt="Typing SVG" /></a>
 
 <img width="235" height="228" alt="147e252e3691f54d2247794a20a584ba" src="https://github.com/user-attachments/assets/78f5c77b-a64e-475f-bf83-eb5bfb31a5cd" /><br>
