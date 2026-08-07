@@ -17,7 +17,7 @@ op81 self insert (not factkin)
 </details>
 
 i have a life and dont have time for petty internet discourse :). busy with college<br>
-i don't usually follow back. ask for my discord if you want to stay in contact. 
+i don't usually follow back spam alts. ask for my discord if you want to stay in contact. 
 </p>
 
 
