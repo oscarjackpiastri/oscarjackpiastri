@@ -18,13 +18,16 @@ rpf etiquette applies, anti-rpf dni
 <details>
   <summary>click 4 ext.</summary>
   <br>
+  <div align="left">
   im into formula 1 right now, supporting mclaren.<br>
   interests: formula 1, military, aviation, music, reading/writing, harry potter, politics<br>
   i have a life and dont have time for petty internet discourse :). very busy with college.<br>
   im aroace but flirty/friendly (this won't apply to minors ofc), tell me beforehand if you're uncomfortable.<br>
   ask for my discord if you want to stay in contact. 
+  </div>
 </p>
 </details>
+<div align="center">
 <img width="120" height="69" alt="tumblr_56e47ea3a28a6262d23bec8daab3dedd_dbe20517_400" src="https://github.com/user-attachments/assets/96ab87c6-81eb-4d79-8066-77cc156a70a1" />
 
 ─────────────────────
