@@ -4,15 +4,17 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=times+new+roman&duration=3000&pause=1000&color=F78734&center=true&width=1000&lines=my+moon%2C;the+moon+and+my+man...;take+it+slow%2C;take+it+easy+on+me." alt="Typing SVG" /></a>
 
 <img width="235" height="228" alt="147e252e3691f54d2247794a20a584ba" src="https://github.com/user-attachments/assets/78f5c77b-a64e-475f-bf83-eb5bfb31a5cd" /><br>
-<sup><sub>cr x/tt: sen4ik_of</sub></sup>
+<sup><sub>cr x/tt: sen4ik_of</sub></sup><br>
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 <p>
 vincenza or oscar<br>
 jurisprudence student<br>
-op81 self insert (not factkin)
+op81 self insert (not factkin)<br>
+rpf etiquette applies, anti-rpf dni
 
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
-**rpf etiquette applies**, anti-rpf dni
 <details>
   <summary>click 4 ext.</summary>
   <br>
@@ -22,7 +24,9 @@ op81 self insert (not factkin)
   ask for my discord if you want to stay in contact. 
 </p>
 </details>
+<img width="120" height="69" alt="tumblr_56e47ea3a28a6262d23bec8daab3dedd_dbe20517_400" src="https://github.com/user-attachments/assets/96ab87c6-81eb-4d79-8066-77cc156a70a1" />
 
+─────────────────────
 
 <img width="99" height="56" alt="tumblr_f72eb7c0a92e207a55e71db58443102b_510f5d85_100" src="https://github.com/user-attachments/assets/347ec02c-7fbd-4daa-a144-b2f75d90015f" />
 <img width="99" height="56" alt="tumblr_7f0a40784817c7a2544d63d33b75ba50_6368fa9f_100" src="https://github.com/user-attachments/assets/6dede063-7649-4d5c-96a0-c565ab35bf5c" />
