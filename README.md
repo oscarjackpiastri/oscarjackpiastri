@@ -5,7 +5,7 @@
 
 <img width="320" height="240" alt="cc75ca86997fbcad69bb5ab6b9a18586_1" src="https://github.com/user-attachments/assets/cb0d0e4c-01d6-4939-8c6c-73bee96c1ec0" /> <br>
 
-[Factroject](https://dissociativesystemwiki.miraheze.org/wiki/Factual_Introject) of [Oscar Piastri](https://en.wikipedia.org/wiki/Oscar_Piastri)<br>
+[Factroject](https://dissociativesystemwiki.miraheze.org/wiki/Factual_Introject) of [Oscar Piastri](https://en.wikipedia.org/wiki/Oscar_Piastri)<br>, partner of [https://en.wikipedia.org/wiki/Lando_Norris](https://en.wikipedia.org/wiki/Lando_Norris) (source mem)
 I don't claim to be Oscar Piastri but my identity is heavily based off and influenced from the driver. (Which I cannot control) Thus I will behave the way he shows. I am healthy and separate between myself and the person. If you have a problem or are uncomfortable, DNI.
 
 <p>
