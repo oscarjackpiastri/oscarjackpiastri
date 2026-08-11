@@ -12,7 +12,7 @@ dncover dncopy</sub></sup>
 <p>
 vincenza or oscar<br>
 jurisprudence student<br>
-op81 factive/facthearted <br>
+op81 factive <br>
 rpf etiquette applies, anti-rpf dni
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
